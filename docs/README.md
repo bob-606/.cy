@@ -1,7 +1,6 @@
 ## Letter of Intent - MBA Program (Open University of Cyprus)
 
-**Dear Admissions Committee,**
-
+**Dear Admissions Committee,** <br>
 I am writing to express my strong interest in pursuing an MBA at the Open University of Cyprus. My atypical background and current academic pursuits position me well for advanced business education.
 
 ### Educational Background
