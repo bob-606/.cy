@@ -1,2 +1,2 @@
 # .cy
-CY grows on you.
+Cyprus grows on you.
