@@ -1,1 +1,1 @@
-[📧](mailto:j@easa.fi)
+[📧](mailto:tor@easa.fi)
